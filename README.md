@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **beingvarungazala@gmail.com**
 
-<h3 align="left">Connect with me: www.linkedin.com/in/varun-gazala-a6560619b</h3>
+<h3 align="left">Connect with me: https://www.linkedin.com/in/varungazala/</h3>
 <p align="left">
 </p>
 
